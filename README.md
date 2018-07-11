@@ -18,3 +18,11 @@ So from now on:
 
 The idea of the group is to help people improve their skills, so if you upload a photo, expect critics, if you don't like to be criticized, then don't post anything.
 Discuss about a photo is fine, insult somebody because you don't like his photo it is not. Always be constructive and respectful to your peers.
+
+
+## Try not to be a dick
+
+So please don't do the following:
+- Create pointless flames
+- Insult people over race, religion, gender, etc...
+- Bullying of any kind will not be tolerated
