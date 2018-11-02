@@ -12,7 +12,8 @@ So from now on:
 
 - Don't spam your website unless your are asking for critics or you want to share something that you think it could be helpful for the community.
 - Upload your photos directly to the group, not by sharing your facebook page or similar, you uploaded it once on it, you can do it twice.
-- Do not overload the group with too many posts with a single photo in a day, create an album instead.
+- Don't overload the group with too many posts with a single photo in a day, create an album instead.
+- Don't ask for followers for your facebook/instagram/others pages
 
 ## Be ready for critics
 
@@ -20,7 +21,7 @@ The idea of the group is to help people improve their skills, so if you upload a
 Discuss about a photo is fine, insult somebody because you don't like his photo it is not. Always be constructive and respectful to your peers.
 
 
-## Try not to be a dick
+## Try not to be a troll
 
 So please don't do the following:
 - Create pointless flames
