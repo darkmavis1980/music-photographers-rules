@@ -2,7 +2,7 @@
 
 ## Respect each other
 
-I firmly believe in the Tolerance Paradox, where to mantain a tolerant society, the society must be intolerant to intolerance.
+I firmly believe in the Tolerance Paradox, where to maintain a tolerant society, the society must be intolerant to intolerance.
 Said that, I don't care if you are the best photographer in the world or you just started out and you still need to understand the difference between Tv and Av, but in this group I demand that everyone treat each other in a respectful matter. It's okay to discuss, we all have different opinions, but just plain insults are not acceptable.
 
 ## No Spam
